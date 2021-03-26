@@ -1,5 +1,4 @@
-# P26-26.03.21-c26-
-INGREDIENTS
+#INGREDIENTS
 3/4 cup granulated sugar
 3/4 cup packed brown sugar (light or dark, but we prefer dark!)
 1/2 cup (1 stick) salted butter, very soft
